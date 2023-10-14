@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m Graphic designer and Web designer, currently I've been working on grow my personal profile<br>🌱 I’m constantly learning<br>⚡ I'm very corious and active
+🔭 I’m Graphic designer and Digital designer, currently I've been working on grow my personal profile<br>🌱 I’m constantly learning<br>⚡ I'm very corious and active
 
 
 ## 🌐 Socials:
